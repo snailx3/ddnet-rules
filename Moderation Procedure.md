@@ -50,5 +50,5 @@ For most questions there is a subforum where people can address their specific q
 - Future map release dates: [aaa](https://forum.ddnet.tw/memberlist.php?mode=viewprofile&u=54) (In-Game: snailx3)
 - Deleted ranks: [aaa](https://forum.ddnet.tw/memberlist.php?mode=viewprofile&u=54) (In-Game: snailx3)
 - Tournaments: [RayB.](https://forum.ddnet.tw/memberlist.php?mode=viewprofile&u=380), [deen](https://forum.ddnet.tw/memberlist.php?mode=viewprofile&u=2)
-- Mod Complaints: Council ([aaa](https://forum.ddnet.tw/memberlist.php?mode=viewprofile&u=54) (In-Game: snailx3), [gdin](https://forum.ddnet.tw/memberlist.php?mode=viewprofile&u=392) , [RayB.](https://forum.ddnet.tw/memberlist.php?mode=viewprofile&u=380), [Hidden-Ezio](https://forum.ddnet.tw/memberlist.php?mode=viewprofile&u=64), [jao](https://forum.ddnet.tw/memberlist.php?mode=viewprofile&u=1291)) or any [Administrator](https://forum.ddnet.tw/memberlist.php?mode=group&g=5)
+- Mod Complaints: Council ([aaa](https://forum.ddnet.tw/memberlist.php?mode=viewprofile&u=54) (In-Game: snailx3), [RayB.](https://forum.ddnet.tw/memberlist.php?mode=viewprofile&u=380), [jao](https://forum.ddnet.tw/memberlist.php?mode=viewprofile&u=1291)) or any [Administrator](https://forum.ddnet.tw/memberlist.php?mode=group&g=5)
 - Skins: [Skin Database Crew](https://forum.ddnet.tw/memberlist.php?mode=group&g=33)
